@@ -1,1 +1,0 @@
-# 47-gymnasium-history-Kurgan
